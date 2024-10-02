@@ -1,2 +1,0 @@
-# Entri_D41
-Entri_Power_Bi_assighments
